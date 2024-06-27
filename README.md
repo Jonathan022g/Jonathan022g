@@ -11,4 +11,3 @@ Meu nome é Jonathan
 jonathan.da.medeiros@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/NfEGhy9EiWkAAAAC/jealous.gif)
-https://media1.tenor.com/m/NfEGhy9EiWkAAAAC/jealous.gif
